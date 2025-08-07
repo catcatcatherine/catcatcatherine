@@ -1,1 +1,1 @@
-hewwouuu~ pleaze read my strawpage lol i'm 2 lazy to make a description and stuff. ¯\(º_o)/¯
+hewwouuu~ pleaze read my strawpage lol i'm 2 lazy to make a description and stuff. ¯\_(º_o)_/¯
