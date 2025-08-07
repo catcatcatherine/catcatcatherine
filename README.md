@@ -1,6 +1,1 @@
-
-only available on YouTube, TikTok, GitHub (you're here, obviously.), SoundCloud, Spotify, Roblox, and Pony Town.
-<!---
-catcatcatherine/catcatcatherine is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+hewwouuu~ pleaze read my strawpage lol i'm 2 lazy to make a description and stuff. ¯\(º_o)/¯
